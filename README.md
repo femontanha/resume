@@ -1,6 +1,6 @@
 #Résumé
 
-Name: Fellipe Azambuja de Oliveira <br />
+Name: Fellipe Azambuja <br />
 Email: [femontanhanew@gmail.com](mailto:femontanhanew@gmail.com) <br />
 Linkedin: [ Check public profile :metal: ](https://br.linkedin.com/pub/fellipe-azambuja/39/779/808) <br />
 Github: [ Check profile :muscle: ](http://www.github.com/femontanha)
